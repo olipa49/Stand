@@ -1,2 +1,1 @@
-# Stand
-sgdfghffgrtd
+рпаолролдвап
